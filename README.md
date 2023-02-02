@@ -1,2 +1,2 @@
 # sacode-online-2023-day3
-belajar csa
+[https://maikelkayame.github.io/sacode-online-2023-day3/](ini saya punya hasil belajar kam bisa lihat di sini)
